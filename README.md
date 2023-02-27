@@ -10,3 +10,5 @@ How would you change what you’re doing every day if you knew this was your fat
 ![image](https://user-images.githubusercontent.com/2797807/219092087-884795b7-f65b-4365-99f0-fa0dcd3ef69f.png)
 
 <b> everyone here is fucking dumb and doesn't understand a single thing about their lives. jesus fucking christ. I want to kill myself. </b>
+
+Looking for: Antanas Norkus. No doxxing required. I just want his attention. https://linkedin.com/in/antanas-norkus-178567b7/ Cheers.
